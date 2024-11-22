@@ -11,5 +11,4 @@ Meu nome é Cauã Antonelli Nascimento
 
 @cauaa.tn
 
-![](
-https://tenor.com/pt-BR/view/tupac-tupac-shakur-2pac-tupac-gym-tupac-laid-back-gif-26157565)
+![](https://tenor.com/pt-BR/view/tupac-tupac-shakur-2pac-tupac-gym-tupac-laid-back-gif-26157565)
